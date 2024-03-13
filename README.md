@@ -7,7 +7,7 @@
 
 - How to reach me **rusirukavinda630@gmail.com**
 
-- Know about my experiences [https://drive.google.com/file/d/10iHUaZEBxh42DhN5KPk9DwtxL6rBJyUF/view?usp=share_link](https://drive.google.com/file/d/10iHUaZEBxh42DhN5KPk9DwtxL6rBJyUF/view?usp=share_link)
+- Know about my experiences [[https://drive.google.com/file/d/10iHUaZEBxh42DhN5KPk9DwtxL6rBJyUF/view?usp=share_link](https://drive.google.com/file/d/1CtO7MQcnK_lgk-uZ2nx_PtkGkyYcYxtw/view?usp=sharing)
 
 
 ## 🌐 Socials:
