@@ -1,11 +1,9 @@
 <h1 align="center">Hi , I'm Pasindu Jayasiri.</h1>
 <h3 align="center">A passionate Software Engineer from Sri Lanka</h3>
 
-- I’m currently learning **Fullstack Development Course, Python Essentials Course**
-
 - All of my projects are available at [https://github.com/Praveenjayasiri](https://github.com/Praveenjayasiri)
 
-- How to reach me **rusirukavinda630@gmail.com**
+- How to reach me **praveen.p.jayasiri@gmail.com**
 
 - Know about my experiences [https://drive.google.com/file/d/10iHUaZEBxh42DhN5KPk9DwtxL6rBJyUF/view?usp=share_link](https://drive.google.com/file/d/1CtO7MQcnK_lgk-uZ2nx_PtkGkyYcYxtw/view?usp=sharing)
 
