@@ -5,7 +5,7 @@
 
 - How to reach me **praveen.p.jayasiri@gmail.com**
 
-- Know about my experiences [https://drive.google.com/file/d/10iHUaZEBxh42DhN5KPk9DwtxL6rBJyUF/view?usp=share_link](https://drive.google.com/file/d/1sptEH_rp_WmRan0oFlceDdaSdylvyHP9/view?usp=sharing)
+- Know about my experiences [https://drive.google.com/file/d/10iHUaZEBxh42DhN5KPk9DwtxL6rBJyUF/view?usp=share_link](https://drive.google.com/file/d/1ggQVufWkdzzmjvZ6NRqFs_MbnfVs_mIR/view?usp=drive_link)
 
 
 ## 🌐 Socials:
